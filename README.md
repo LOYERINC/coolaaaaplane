@@ -1,0 +1,3 @@
+Alright, so I don't have much experience with CAD, I'm learning, but I wanted to make some tin, so I made the Concorde, a plane in the 20th century that killed some people because of how fast it was, and unsafe mine is even worse . i coundt fiure out ow to loft a face to a cylinder it was sowin wrror so i ad to improvise and te stylin isnt ood but il improve it trust, i was owkey confused imused to makin just one part so makin sometin wit more tatn one was weird , so dont expect no dimentions a lot of planes were used im bum so i dont know yet ow to do lass
+
+<img width="1208" height="740" alt="concord" src="https://github.com/user-attachments/assets/44a482ae-12aa-44be-88a1-1ab1300559f8" />
